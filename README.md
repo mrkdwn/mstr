@@ -1,7 +1,7 @@
 # mstr
 I'm jst lzy wth vwls, so I thght I'd stck t nly usng m whn ncsry.
 
-Y's r a grt ltrntv, + +'s r bttr thn nd.
+Y's r a grt ltrntv, + +'s r bttr thn 'and'.
 
 U genrly nly hv 2 use m in a fw crcmstncs, spclly:
 - prnsl pronuns
